@@ -1,7 +1,7 @@
 
 
 im awkward sorry please talk to me if you have the same interests<br/> 
-promptism on disc<br/>
+headfirst.for.halos. on disc<br/>
 please sit with me/talk to me if youre my friend, im probably too scared to go to you<br/>
 how do i make a pretty profile
  
